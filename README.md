@@ -9,7 +9,7 @@ there was no light
 there was no dark
 nor shape of any kind
 
-there was as no stars
+there was no stars
 or planet Mars
 or protons to colide
 
